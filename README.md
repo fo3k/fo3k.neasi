@@ -1,1 +1,1 @@
-# fo3k.neasi
+čumíš jak fo3k/neasi 
